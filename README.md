@@ -2,3 +2,9 @@
 - 👀 I’m interested in all the latest stuff in the tech field
 - 🌱 I’m currently learning Solidity programming language
 - 💞️ I’m looking to collaborate on Open source projects
+- 🔥🇮🇳FULL STACK Web 3.0 Dev.....
+- 👨‍🎓🌐14 Year Old !
+- @solidity_lang 
+- @ethereum
+- @reactjs Dev
+- Open to work
